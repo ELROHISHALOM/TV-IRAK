@@ -1,2 +1,0 @@
-# TV-IRAK
-TV IRAK
